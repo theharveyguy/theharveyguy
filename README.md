@@ -7,10 +7,6 @@ General Kenobi!
 ✝️ But talking about computers will not give you the full picture of me. I am a Christian and I love the Bible. My true passion in life is to teach students the truth of scripture, building a foundation that prepares them for the complexities of our world today. I've served in many different capacities with several different churches over the years, and I've been fascinated with how new technologies can be leveraged for the sake of the Gospel.
 
 ## Current projects
-### theharveyguy.com
-📑I publish my writings on my blog, theharveyguy.com. I like writing about the Bible, Ministry, and a little bit of tech here and there.
-### Seminary
-📚I will be starting seminary soon, working on a Masters of Divinity.
 
 ## Support
 ☕If you are here from the blog and want to support me, you can buy me a coffee on Ko-Fi.
